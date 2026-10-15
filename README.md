@@ -1,5 +1,5 @@
 # 💫 About Me:
-**My Portfolio** <br>https://stromxd-portfolio.vercel.app/<br><br>**About Me:**<br>• **Incomplete Without YOU**<br>• **Part time Developer**<br>• **Creator: Velocity Modpack** 🪐<br>• **Chasing Greatness**
+**My Portfolio** <br>Coming Soon<br><br>**About Me:**<br>• **Brdiging Gaps Between**<br>• **Part Time Open Src Developer**<br>• **Working On Multiple Projects** 🪐<br>• **Chasing Greatness**
 
 
 ## 🌐 Socials:
